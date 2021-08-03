@@ -7,5 +7,5 @@
 - 💬 Ask me about anything 😁✌🏻
 - 📫 How to reach me: 42554671+albertviilik@users.noreply.github.com
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: I wipe my computer every 2-3 months in order to keep everything clean and organised.
 
